@@ -1,0 +1,1 @@
+ここに配布ZIPを置いてください。推奨名: yuukoku_no_maeges_longterm.zip
